@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a student <br>
+I am Currently learning Bachelor of Computer Application <br>
 
 
 ## 🌐 Socials:
